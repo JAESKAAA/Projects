@@ -1,3 +1,3 @@
 # Projects
 
-who deleted the previous written work !?!?!?!!? - thomas -
+Be prepare to code - thomas -
